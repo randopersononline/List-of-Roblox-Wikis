@@ -2,8 +2,8 @@
 A collection of roblox encyclopedias collected by rando. from A to Z
 
 # A
-Adopt Me! Wiki — https://adoptme.fandom.com/wiki/Adopt_Me
-!
+Adopt Me! Wiki — https://adoptme.fandom.com/wiki/Adopt_Me!
+
 Arsenal Wiki — https://arsenal.fandom.com/wiki/Arsenal_Wiki
 
 Anime Fighting Simulator Wiki — https://animefightsimulator.fandom.com/wiki/Anime_Fighting_Simulator_Wiki
